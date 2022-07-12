@@ -1,4 +1,5 @@
 # CRYPTER WITH PRIVATE STUB FUD
+## TELEGRAM : https://t.me/mave12x
 LAST SCANNING : https://antiscan.me/scan/new/result?id=jDhOASX7bejr
 -
 FUD CRYPTER WORK ON ALL RAT's : 
